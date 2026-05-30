@@ -120,4 +120,4 @@ Any changes will be posted within the App and reflected by the updated date abov
 
 If you have any questions about this Privacy Policy, please contact:
 
-[support@still-app.com](mailto:support@still-app.com)
+[nunofgc@gmail.com](mailto:nunofgc@gmail.com)
